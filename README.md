@@ -1,0 +1,1 @@
+# pertemuan-07-fungsipadapython-2225250210
